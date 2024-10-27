@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vanshaj
-- 👀 I’m interested in Web Development and Coding.
+- 👀 I’m interested in new AI technologies.
 - 🌱 I’m currently learning DSA
 - 📫 How to reach me - vanshajsen instagram id,
 - 😄 Pronouns: ...
