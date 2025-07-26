@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @Vanshaj<br>👀 I’m interested in new AI technologies.<br>🌱 I’m currently learning DSA and Web Development.<br>📫 How to reach me - vanshajsen instagram id,<br>😄 Pronouns: ...<br>⚡ Fun fact: ...
+👋 Hi, I’m @Vanshaj<br>👀 I’m interested in new AI technologies.<br>🌱 I’m currently learning DSA and Web Development.<br>📫 How to reach me - vansh_aj_16 instagram id,<br>😄 Pronouns: ...<br>⚡ Fun fact: ...
 
 
 ## 🌐 Socials:
